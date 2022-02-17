@@ -1,13 +1,12 @@
 # Motorkariczsk
 
 ````
-motorkariczsk
-Hezkého Valentina 💐
+
 =====================
 Sleduj :☝️ @motorkariczsk 😍
 =====================
-Repost: @exagon_moto
+Repost:
 =====================
 
-#czmotorkaricz #valentine #ducatipanigale #ducatimotor #motorka #motorky
+#czmotorkaricz 
 
